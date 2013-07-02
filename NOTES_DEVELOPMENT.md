@@ -1,7 +1,8 @@
+Code sheet
+=============
 	python -m SimpleHTTPServer 8080
 	ps -ef | less
 	ps -ef | grep -i jboss
-	ps -ef | grep -i run.sh
 	w -f
 	who
 	df --disk space
@@ -35,7 +36,7 @@
 				        }
 				        e.printStackTrace();
 					}
-	<a:log popup="false" level="ALL" style="width: 800px; height: 300px;"/>
+	> <a:log popup="false" level="ALL" style="width: 800px; height: 300px;"/>
 	1) in jboss-{version}/server/bin/run.bat, somewhere at the end, there is a line like this:
 	rem set JAVA_OPTS=-Xdebug -Xrunjdwp:transport=dt_socket,address=8787,server=y,suspend=y %JAVA_OPTS%
 	For backup reasons, just start by making a copy of that line, then remove the first 'rem' and change suspend=y to suspend=n. Then you get something like
