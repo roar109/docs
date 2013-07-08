@@ -104,3 +104,4 @@ Code sheet
 		<param-name>org.ajax4jsf.COMPRESS_SCRIPT</param-name>
 		<param-value>true</param-value>
 	</context-param>
+	MWrite in the explorer if it were a notepad: data:text/html, <html contenteditable>
