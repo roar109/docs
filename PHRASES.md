@@ -67,7 +67,7 @@ HtR
 * la cría es un lamehuevos profesional 
 * eres toda una loquilla
 * nacimos para cagarla 
-* que chingados quieres cabron! ![Alt text](http://i0.kym-cdn.com/entries/icons/original/000/006/216/7nTnr.png "True Story")
+* que chingados quieres cabron! ![Alt text](http://img3.wikia.nocookie.net/__cb20130810231751/spiderman/images/c/c7/Funny-date-girl-guy-true-story-meme.jpg "True Story")
 
 General
 =============
