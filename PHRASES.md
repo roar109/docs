@@ -66,7 +66,8 @@ ya se te hizo agua la canoa
 la cría es un lamehuevos profesional 
 eres toda una loquilla
 nacimos para cagarla 
-
+que chingados quieres cabron! 
+![Alt text](http://i0.kym-cdn.com/entries/icons/original/000/006/216/7nTnr.png "True Story")
 -------------------------------------
 General:
 ------------------------------------
