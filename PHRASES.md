@@ -4,7 +4,7 @@ HtR
 * Las mamadas son aqui
 * Ya estas peinado pa tras
 * inche vato mamón
-* Estas miando fuera de la taza ssssss
+* Estas miando fuera de la taza
 * Calmate calmado
 * Bien Larry 
 * No me importa wey
