@@ -34,20 +34,20 @@ HtR
 * juanito banana
 * andale putito
 * inche vatito lame testiculos
-* no mamo pura leche en vaso
+* no mamo, pura leche en vaso
 * el que va en medio viene remando (como siempre a Carlitos le encanta remar)
 * Ya te cargo la chingada
 * andale puto
 * buleria, buleria quien te la meteria
-* no hay pedo dijo el tapado.
+* no hay pedo dijo el tapado
 * pa que llenas el peñal
 * A huevo 
 * Sereno moreno
 * Andale chupame la mano
 * Estas merendando el tubo
-* cada quien puede hacer de su culo un papalote
+* cada quien hace de su culo un papalote
 * De a dos papa
-* dios te bendiga y te de muchos hijos y un seno grande para amamantarlos. 
+* dios te bendiga y te de muchos hijos y un seno grande para amamantarlos
 * mamando la pirinola con enjundia y pasión
 * Como te la comes que adivinas?.
 * caminando y miando
@@ -58,7 +58,7 @@ HtR
 * enclochable
 * ese vatillo apretado
 * estás tirando en el cerro 
-* callate y comete está.
+* callate y comete está
 * si prostituto barato
 * ya dejate de mamadas y pegale a esa chingadera
 * inche jotito de mierda
