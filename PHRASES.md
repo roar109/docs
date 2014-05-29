@@ -129,3 +129,5 @@ General
 * "Se esta poniendo muy flamenca"
 * Le encanta desayunarla, almorzarla, comerla, merendarla y cenarla...
 * A la megamierda!
+* La intencion es joder al indio
+* a pues camara
