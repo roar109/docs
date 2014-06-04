@@ -132,3 +132,4 @@ General
 * La intencion es joder al indio
 * A pues camara
 * El huele bonito
+* Mi amigo de X lugar huele muuuuuuuuy rico
