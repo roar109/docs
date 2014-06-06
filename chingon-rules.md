@@ -1,1 +1,3 @@
-* 1 de ser CHINGON: Querer es poder  
+Reglas para ser chingon segun Cris
+===
+* Regla 1: Querer es poder  
