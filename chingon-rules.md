@@ -6,6 +6,8 @@
 ## Lecciones de vida ##
 
 * Un chingon no se revuelca con cualquiera, para una mujer estar con un chingon es un privilegio.
+* Un chingon no pela a su companeros sus companeros lo pelan a el
+
 
 ## Quotes ##
 * Chingon on the way
