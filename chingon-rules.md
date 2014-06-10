@@ -11,3 +11,4 @@
 ## Quotes ##
 * Chingon on the way
 * La verdad las personas ocupan tener acceso a mis conocimientos ya que son bastos y necesarios para poder aspirar ser un chingon
+* Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
