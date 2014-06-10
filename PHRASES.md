@@ -133,3 +133,4 @@ General
 * A pues camara
 * El huele bonito
 * Mi amigo de X lugar huele muuuuuuuuy rico
+* No tienes mucho que hacer asi que pues le buscas chichis a las hormigas
