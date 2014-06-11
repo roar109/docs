@@ -9,6 +9,7 @@
 * Un chingon no pela a su companeros sus companeros lo pelan a el
 * Cuando se es chingon se estudia al maximo para impresionar y despues poder disfrutar de los beneficios
 * Se es chingon hasta cuando eres sonambulo
+* Ser chingon es ser mamon, pero al mismo tiempo ser curado
 
 ## Quotes ##
 * Chingon on the way
