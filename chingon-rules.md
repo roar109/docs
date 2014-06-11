@@ -7,8 +7,10 @@
 
 * Un chingon no se revuelca con cualquiera, para una mujer estar con un chingon es un privilegio.
 * Un chingon no pela a su companeros sus companeros lo pelan a el
+* Cuando se es chingon se estudia al maximo para impresionar y despues poder disfrutar de los beneficios
 
 ## Quotes ##
 * Chingon on the way
 * La verdad las personas ocupan tener acceso a mis conocimientos ya que son bastos y necesarios para poder aspirar ser un chingon
 * Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
+
