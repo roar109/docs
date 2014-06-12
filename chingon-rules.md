@@ -10,6 +10,7 @@
 * Cuando se es chingon se estudia al maximo para impresionar y despues poder disfrutar de los beneficios
 * Se es chingon hasta cuando eres sonambulo
 * Ser chingon es ser mamon, pero al mismo tiempo ser curado
+* Fomentar el "Chingonismo" en todos los que quieran ser chingones.
 
 ## Quotes ##
 * Chingon on the way
