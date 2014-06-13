@@ -17,3 +17,4 @@
 * La verdad las personas ocupan tener acceso a mis conocimientos ya que son bastos y necesarios para poder aspirar ser un chingon
 * Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
 * Si no lo conozco no es nadie
+* Soy un desmadre, pero con estilo
