@@ -11,6 +11,7 @@
 * Un chingon no pela a su companeros sus companeros lo pelan a el
 * Se es chingon hasta cuando eres sonambulo
 * Fomentar el "Chingonismo" en todos los que quieran ser chingones.
+* Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
 
 ## Quotes ##
 * Chingon on the way
@@ -18,4 +19,4 @@
 * Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
 * Si no lo conozco no es nadie
 * Soy un desmadre, pero con estilo
-* Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
+
