@@ -12,6 +12,7 @@
 * Se es chingon hasta cuando eres sonambulo
 * Fomentar el "Chingonismo" en todos los que quieran ser chingones.
 * Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
+* Ser chingon es tener quien te haga las cosas incesesaria y aburridas que los demas quieren
 
 ## Quotes ##
 * Chingon on the way
