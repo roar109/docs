@@ -18,3 +18,4 @@
 * Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
 * Si no lo conozco no es nadie
 * Soy un desmadre, pero con estilo
+* Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
