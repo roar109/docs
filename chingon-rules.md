@@ -21,3 +21,6 @@
 * Si no lo conozco no es nadie
 * Soy un desmadre, pero con estilo
 
+
+## Canones de la Chingoneria ##
+Esos canones deben estar siempre en mente para poder aspirar ser un chingon
