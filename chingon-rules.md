@@ -14,6 +14,8 @@
 * Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
 * Ser chingon es tener quien te haga las cosas incesesaria y aburridas que los demas quieren
 * Parte del chingonismo es ser generoso con los amigos
+* Ser chingon es no preocuparte por los demas, es dejarlos al buen de dios
+* Un chingon tiene suficientes cosas en la mente como para andar pensando en los demas
 
 ## Quotes ##
 * Chingon on the way
