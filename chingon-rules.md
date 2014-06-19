@@ -13,6 +13,7 @@
 * Fomentar el "Chingonismo" en todos los que quieran ser chingones.
 * Un chingon se presenta con clase, respeto y al final del dia obtiene lo que busca
 * Ser chingon es tener quien te haga las cosas incesesaria y aburridas que los demas quieren
+* Parte del chingonismo es ser generoso con los amigos
 
 ## Quotes ##
 * Chingon on the way
