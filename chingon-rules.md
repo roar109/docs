@@ -23,6 +23,7 @@
 * Pero si HOLAAAAAAAAAA, le dijo el comal a la hoya
 * Si no lo conozco no es nadie
 * Soy un desmadre, pero con estilo
+* Ser pendejo no es una deficiencia
 
 
 ## Canones de la Chingoneria ##
