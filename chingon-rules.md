@@ -24,6 +24,7 @@
 * Si no lo conozco no es nadie
 * Soy un desmadre, pero con estilo
 * Ser pendejo no es una deficiencia
+* Todos siempre van a estar pegados atras de mi, pero jamas enfrente
 
 
 ## Canones de la Chingoneria ##
