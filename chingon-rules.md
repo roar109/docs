@@ -26,6 +26,7 @@
 * Ser pendejo no es una deficiencia
 * Todos siempre van a estar pegados atras de mi, pero jamas enfrente
 * Ya te anda tostando la pildora (supositorio)
+* Cuando me quedo callado es porque la neta voy a empezar a tirar carrilla demaciado pesado y se que me voy a pasar de lanza asi que mejor calladito
 
 
 ## Canones de la Chingoneria ##
