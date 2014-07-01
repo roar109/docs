@@ -25,6 +25,7 @@
 * Soy un desmadre, pero con estilo
 * Ser pendejo no es una deficiencia
 * Todos siempre van a estar pegados atras de mi, pero jamas enfrente
+* Ya te anda tostando la pildora (supositorio)
 
 
 ## Canones de la Chingoneria ##
