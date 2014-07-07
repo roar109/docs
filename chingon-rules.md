@@ -27,6 +27,7 @@
 * Todos siempre van a estar pegados atras de mi, pero jamas enfrente
 * Ya te anda tostando la pildora (supositorio)
 * Cuando me quedo callado es porque la neta voy a empezar a tirar carrilla demaciado pesado y se que me voy a pasar de lanza asi que mejor calladito
+* Soy un developer atrapado en el cuerpo de un BI
 
 
 ## Canones de la Chingoneria ##
