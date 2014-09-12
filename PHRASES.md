@@ -137,3 +137,4 @@ General
 * No tienes mucho que hacer asi que pues le buscas chichis a las hormigas
 * YOLOEL = You Only Live Once Enjoy Life
 * #siyasabesquenosirveparaquedeployas
+* putisima la vende guevos
