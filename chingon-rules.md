@@ -16,6 +16,8 @@
 * Parte del chingonismo es ser generoso con los amigos
 * Ser chingon es no preocuparte por los demas, es dejarlos al buen de dios
 * Un chingon tiene suficientes cosas en la mente como para andar pensando en los demas
+* Un padre chingon, padre chingon + mama chingona = hijo chingonsisimo
+* Uno debe buscar la chingoneria y despues buscarse una mujer chingona no cualquier rata de vecindad chilopastrosa
 
 ## Quotes ##
 * Chingon on the way
