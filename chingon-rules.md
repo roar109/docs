@@ -32,3 +32,10 @@
 
 ## Canones de la Chingoneria ##
 Esos canones deben estar siempre en mente para poder aspirar ser un chingon
+
+## Anecdotas ##
+###Alex Raptor ###
+Minimo regresa cada tanto tiempo a cagar el palo de nuevo, porque puede soportarlo, 
+no es el BI que necesitamos, pero es el que merecemos, *the dark kanter*
+
+![Alt text](http://cdn1-www.craveonline.com/assets/uploads/2013/08/A-Film-By-Christopher-Nolan.jpg "The dark Kanter")
