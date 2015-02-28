@@ -18,6 +18,7 @@
 * Un chingon tiene suficientes cosas en la mente como para andar pensando en los demas
 * Un padre chingon, padre chingon + mama chingona = hijo chingonsisimo
 * Uno debe buscar la chingoneria y despues buscarse una mujer chingona no cualquier rata de vecindad chilopastrosa
+* Cuando hace frio y tu si entrenas cuando los demas no eso te HACE MAS CHINGON que los demas
 
 ## Quotes ##
 * Chingon on the way
