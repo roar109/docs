@@ -123,3 +123,4 @@
 * putisima la vende guevos
 * En lo que agarra agua la nube
 * Duro contra el muro y profundo por el ducto
+* Ya no coordina ni la orina
