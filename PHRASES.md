@@ -125,3 +125,4 @@
 * Duro contra el muro y profundo por el ducto
 * Ya no coordina ni la orina
 * Somos el prieto en el arroz
+* Larga vida y poca vergüenza
