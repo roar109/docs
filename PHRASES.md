@@ -124,3 +124,4 @@
 * En lo que agarra agua la nube
 * Duro contra el muro y profundo por el ducto
 * Ya no coordina ni la orina
+* Somos el prieto en el arroz
