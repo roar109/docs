@@ -126,3 +126,4 @@
 * Ya no coordina ni la orina
 * Somos el prieto en el arroz
 * Larga vida y poca vergüenza
+* Un indio con zapatos es peligroso
