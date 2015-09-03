@@ -131,3 +131,4 @@
 * Mamasear
 * Relaja la raja
 * RTFM (read the following (fucking) manual)
+* Soy la neta, soy atros... me la pela el puto santa closs
