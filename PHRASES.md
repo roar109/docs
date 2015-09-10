@@ -25,6 +25,7 @@
 * Pedaso de mierda
 * Pedaso de mastique
 * Empieza a darle por atras y luego por adelante
+* el horno no esta pa bollos
 * Inche vato miercoles de cenizas
 * Descansar is for pussys
 * Hasta donde hayas metido el asunto
