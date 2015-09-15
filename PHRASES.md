@@ -132,3 +132,6 @@
 * Relaja la raja
 * RTFM (read the following (fucking) manual)
 * Soy la neta, soy atros... me la pela el puto santa closs
+* Algun dia algun dia mi gato comera sandia
+* Ahora es cuando, chile verde, le has de dar sabor al caldo
+* No te calientes cazuela, que el chorizo no es para ti
