@@ -139,3 +139,4 @@
 * El horno no esta pa bollos
 * El respeto salio por la ventana
 * "Fierro pariente, derecho a misa, cero miedo con jesus a mi lado me siento alterado ni el diablo me tienta, tampoco el pecado."
+* Gradualeame el chorizo
