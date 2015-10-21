@@ -141,3 +141,4 @@
 * "Fierro pariente, derecho a misa, cero miedo con jesus a mi lado me siento alterado ni el diablo me tienta, tampoco el pecado."
 * Gradualeame el chorizo
 * Calmao el venao
+* java.lang.Object no nos abandones ni de noche ni de dia
