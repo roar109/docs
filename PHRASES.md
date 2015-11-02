@@ -142,3 +142,4 @@
 * Gradualeame el chorizo
 * Calmao el venao
 * java.lang.Object no nos abandones ni de noche ni de dia
+* Con la actitud como el pito ... por delante y con todas las ganas
