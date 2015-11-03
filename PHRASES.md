@@ -143,3 +143,4 @@
 * Calmao el venao
 * java.lang.Object no nos abandones ni de noche ni de dia
 * Con la actitud como el pito ... por delante y con todas las ganas
+* En la mañanita cuando sale el sol sale la gallina y se ve el calzon
