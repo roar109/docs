@@ -145,3 +145,4 @@
 * Con la actitud como el pito ... por delante y con todas las ganas
 * En la mañanita cuando sale el sol sale la gallina y se ve el calzon
 * Besandose sus bocas
+* No es de jotos si no cierran los ojos
