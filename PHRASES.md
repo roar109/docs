@@ -25,6 +25,12 @@
 * Pedaso de mierda
 * Pedaso de mastique
 * Empieza a darle por atras y luego por adelante
+* Matar a escobazos la Tarántula
+* Remojar la mantecada
+* Desflemar al cuaresmeño
+* Apasiguar la nutria
+* Despeinar a la cotorra
+* Gratinar el mollete
 * Se besan en sus bocas
 * el horno no esta pa bollos
 * Inche vato miercoles de cenizas
