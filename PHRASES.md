@@ -151,7 +151,10 @@
 * java.lang.Object no nos abandones ni de noche ni de dia
 * Con la actitud como el pito ... por delante y con todas las ganas
 * En la mañanita cuando sale el sol sale la gallina y se ve el calzon
-* Besandose sus bocas
 * No es de jotos si no cierran los ojos
 * Aun huele a pipi
 * Por el siempre sucio
+* Ya dejen de quemar rancho
+* Si tanto nos amamos, si tanto nos deseamos, porque no juntar las partes por donde orinamos
+* Ando al 94, me falta un six pa' ponerme al 100
+* No te claves mucho en la maroma del chango,  que el pan virote se pone duro
