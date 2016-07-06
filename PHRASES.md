@@ -159,3 +159,4 @@
 * Ando al 94, me falta un six pa' ponerme al 100
 * No te claves mucho en la maroma del chango,  que el pan virote se pone duro
 * Ya le diste una ya le diste 2 ya le diste tres y tu tiempo se acabó
+* Estoy libre como una taibolera que despoja de su tanga
