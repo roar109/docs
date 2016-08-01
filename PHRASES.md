@@ -160,3 +160,4 @@
 * No te claves mucho en la maroma del chango,  que el pan virote se pone duro
 * Ya le diste una ya le diste 2 ya le diste tres y tu tiempo se acabó
 * Estoy libre como una taibolera que despoja de su tanga
+*A la que le huela mas feo ese dia, entre mas apestoso mas sabroso
