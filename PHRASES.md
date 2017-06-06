@@ -161,6 +161,7 @@
 * Ya le diste una ya le diste 2 ya le diste tres y tu tiempo se acabó
 * Estoy libre como una taibolera que despoja de su tanga
 * A la que le huela mas feo ese dia, entre mas apestoso mas sabroso
+* Besitos en el corta churros
 
 ```
 /**
