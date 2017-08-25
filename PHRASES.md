@@ -162,6 +162,7 @@
 * Estoy libre como una taibolera que despoja de su tanga
 * A la que le huela mas feo ese dia, entre mas apestoso mas sabroso
 * Besitos en el corta churros
+* Un par de tetas jala mas que 100 carretas
 
 ```
 /**
