@@ -32,6 +32,7 @@
 * Cuando me quedo callado es porque la neta voy a empezar a tirar carrilla demaciado pesado y se que me voy a pasar de lanza asi que mejor calladito
 * Soy un developer atrapado en el cuerpo de un BI
 * YOU FUCK THEM BUT YOU DONT TAKE THEM HOME
+* No importa como le des si no como te mires - Siempre hay que verse mamalones !!
 
 
 ## Canones de la Chingoneria ##
