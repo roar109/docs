@@ -165,6 +165,7 @@
 * Un par de tetas jala mas que 100 carretas
 * take your chill pill
 * Vaca que no da leche, que no venga a ensuciar el corral
+* y si son de harina, ni me más calientes, así mero 
 
 
       	/**
