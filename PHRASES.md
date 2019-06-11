@@ -12,7 +12,6 @@
 * puliendo el tubo
 * Lo haces con injudia
 * Vete a la verga ya
-* Pinche mamón
 * Tienes hambre entonces alza la pata y lambe
 * No estes mamando el mandril
 * Hechale galleta
@@ -46,7 +45,6 @@
 * Buleria, buleria quien te la meteria
 * No hay pedo dijo el tapado
 * Pa que llenas el peñal
-* A huevo 
 * Sereno moreno
 * Estas merendando el tubo
 * Cada quien hace de su culo un papalote
@@ -61,7 +59,7 @@
 * Enclochable
 * Ese vatillo apretado
 * Estás tirando en el cerro 
-* Eallate y comete está
+* Callate y comete está
 * Si prostituto barato
 * Ya dejate de mamadas y pegale a esa chingadera
 * Inche jotito de mierda
@@ -78,7 +76,6 @@
 
 * Sin varillazo no hay gloria
 * No culearas
-* La toñeta
 * Concentrado, pa delante y sin miedo
 * No mariconearas
 * Nariz pa´lpolvo
@@ -89,9 +86,7 @@
 * Le entro por el hobbit
 * Hoyo aunque sea de pollo
 * Caulquier mujer es bella por donde mea
-* Pinche putapoli
 * Te dio el sindrome del gallo
-* Te he visto
 * Traes mucho talento
 * "Siempre es mejor con una mano amiga"
 * A lo que tu le llamas suerte, yo le llamo talento
@@ -105,7 +100,6 @@
 * No traen nada en el morral
 * No traen Nanci
 * Buen provecho para ese lado estrecho
-* Hola chicos
 * Un buen pedo es honesto y sincero 
 * No te la hace de pedo aunque huela bien culero
 * Simon templas el aguacate
@@ -122,9 +116,6 @@
 * Le encanta desayunarla, almorzarla, comerla, merendarla y cenarla...
 * A la megamierda!
 * La intencion es joder al indio
-* A pues camara
-* El huele bonito
-* Mi amigo de X lugar huele muuuuuuuuy rico
 * No tienes mucho que hacer asi que pues le buscas chichis a las hormigas
 * YOLOEL = You Only Live Once Enjoy Life
 * #siyasabesquenosirveparaquedeployas
