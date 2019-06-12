@@ -69,7 +69,7 @@
 * Eres toda una loquilla
 * Nacimos para cagarla 
 * A huevo dijo el capao
-* Andale weeeyyy (8)
+* Tragó leche de mangesia
 
 # General #
 
