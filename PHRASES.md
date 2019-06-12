@@ -69,7 +69,6 @@
 * Eres toda una loquilla
 * Nacimos para cagarla 
 * A huevo dijo el capao
-* Tragó leche de mangesia
 
 # General #
 
@@ -157,6 +156,7 @@
 * take your chill pill
 * Vaca que no da leche, que no venga a ensuciar el corral
 * y si son de harina, ni me más calientes, así mero 
+* Tragó leche de mangesia
 
 
       	/**
