@@ -161,6 +161,9 @@
 * Como gorda en tobogan
 * Ya deja esa vergada
 * si lo vas a dar para que lo frunses
+* YAGNI you aint going to need it
+
+
       	/**
       	* For the brave souls who get this far: You are the chosen ones,
       	* the valiant knights of programming who toil away, without rest,
