@@ -1,5 +1,5 @@
 
-# HtR #
+# General #
 
 * Las mamadas son aqui
 * Ya estas peinado pa tras
@@ -8,7 +8,6 @@
 * Calmate calmado
 * Bien Larry 
 * No me importa wey
-* Jobitio Gonzales
 * Maricon declarado 
 * puliendo el tubo
 * Lo haces con injudia
@@ -17,13 +16,9 @@
 * No estes mamando el mandril
 * Hechale galleta
 * Inches vatitos rascacuachas
-* Andas tirando el liquido fuera de la taza
 * Traes el culillo flojo
 * Mamón de mierda
 * Mamalonamente
-* Perro de mierda
-* Pedaso de mierda
-* Pedaso de mastique
 * Empieza a darle por atras y luego por adelante
 * Matar a escobazos la Tarántula
 * Remojar la mantecada
@@ -34,7 +29,6 @@
 * Se besan en sus bocas
 * el horno no esta pa bollos
 * Inche vato miercoles de cenizas
-* Descansar is for pussys
 * Hasta donde hayas metido el asunto
 * Juanito banana
 * Andale putito
@@ -42,7 +36,6 @@
 * No mamo, pura leche en vaso
 * El que va en medio viene remando
 * Ya te cargo la chingada
-* Andale puto
 * Buleria, buleria quien te la meteria
 * No hay pedo dijo el tapado
 * Pa que llenas el peñal
@@ -66,15 +59,9 @@
 * Inche jotito de mierda
 * Si entra...
 * Ya se te hizo agua la canoa 
-* La cría es un lamehuevos profesional 
 * Eres toda una loquilla
 * Nacimos para cagarla 
 * A huevo dijo el capao
-
-# General #
-
-
-* Sin varillazo no hay gloria
 * No culearas
 * Concentrado, pa delante y sin miedo
 * No mariconearas
@@ -161,7 +148,7 @@
 * Como gorda en tobogan
 * Ya deja esa vergada
 * si lo vas a dar para que lo frunses
-* YAGNI you aint going to need it
+* YAGNI: you aint going to need it
 
 
       	/**
