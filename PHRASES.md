@@ -151,7 +151,8 @@
 * YAGNI: you aint going to need it
 * pones la cara de perrazo porque le apesta el anastasio
 * yea yea la muñeca fea
-* yupi yupi el muñeco chucky
+* yupi yupi el muñeco chuck
+* Ya salte de victimilandia
 
 
       	/**
