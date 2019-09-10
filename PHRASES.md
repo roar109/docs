@@ -143,7 +143,7 @@
 * Un par de tetas jala mas que 100 carretas
 * take your chill pill
 * Vaca que no da leche, que no venga a ensuciar el corral
-* y si son de harina, ni me más calientes, así mero 
+* Y si son de harina, ni me más calientes, así mero 
 * Tragó leche de mangesia
 * Como gorda en tobogan
 * Ya deja esa vergada
@@ -156,6 +156,7 @@
 * Camara carnal aflojas o te aflojo
 * ¿Dónde andas perra que no te oigo ladrar?
 * ¿Dónde andas pedorra hedionda que no te huelo?
+* Eso esta bien bastardo
 
 
       	/**
