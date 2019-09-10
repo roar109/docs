@@ -154,6 +154,8 @@
 * yupi yupi el muñeco chuck
 * Ya salte de victimilandia
 * Camara carnal aflojas o te aflojo
+* ¿Dónde andas perra que no te oigo ladrar?
+* ¿Dónde andas pedorra hedionda que no te huelo?
 
 
       	/**
