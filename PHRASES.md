@@ -157,6 +157,7 @@
 * ¿Dónde andas perra que no te oigo ladrar?
 * ¿Dónde andas pedorra hedionda que no te huelo?
 * Eso esta bien bastardo
+* Entre risa y risa se les va la longaniza
 
 
       	/**
