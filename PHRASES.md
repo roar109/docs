@@ -159,6 +159,7 @@
 * Eso esta bien bastardo
 * Entre risa y risa se les va la longaniza
 * Bambi es un venado
+* Te aclimatas o te aclichingas
 
 
       	/**
