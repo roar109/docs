@@ -157,6 +157,9 @@
 * Entre risa y risa se les va la longaniza
 * Bambi es un venado
 * Te aclimatas o te aclichingas
+* ¿que es crotolamo? esta
+* Te de ramito blanco
+* Quisiera ser pirata no por el oro ni por la plata, si no por ese tesoro que tienes entre las patas
 
 
       	/**
