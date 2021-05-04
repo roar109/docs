@@ -7,7 +7,6 @@
 * Estas miando fuera de la taza
 * Calmate calmado
 * Bien Larry 
-* No me importa wey
 * Maricon declarado 
 * puliendo el tubo
 * Lo haces con injudia
@@ -30,7 +29,6 @@
 * el horno no esta pa bollos
 * Inche vato miercoles de cenizas
 * Hasta donde hayas metido el asunto
-* Juanito banana
 * Andale putito
 * Inche vatito lame testiculos
 * No mamo, pura leche en vaso
@@ -96,7 +94,6 @@
 * Pasa por el arco del triunfo
 * Por su pollo (por supuesto)
 * No eres gay, solo te traiciona el culo.
-* A donde me llevas?, no, si ya te traigo...
 * La vida es un parche a la muerte
 * Asi pasa cuando sucede
 * "Se esta poniendo muy flamenca"
