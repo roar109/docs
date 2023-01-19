@@ -2,15 +2,11 @@
 # General #
 
 * Las mamadas son aqui
-* Ya estas peinado pa tras
-* Inche vato mamón
 * Estas miando fuera de la taza
 * Calmate calmado
-* Bien Larry 
 * Maricon declarado 
 * puliendo el tubo
 * Lo haces con injudia
-* Vete a la verga ya
 * Tienes hambre entonces alza la pata y lambe
 * No estes mamando el mandril
 * Hechale galleta
@@ -27,9 +23,7 @@
 * Gratinar el mollete
 * Se besan en sus bocas
 * el horno no esta pa bollos
-* Inche vato miercoles de cenizas
 * Hasta donde hayas metido el asunto
-* Andale putito
 * Inche vatito lame testiculos
 * No mamo, pura leche en vaso
 * El que va en medio viene remando
@@ -37,48 +31,33 @@
 * Buleria, buleria quien te la meteria
 * No hay pedo dijo el tapado
 * Pa que llenas el peñal
-* Sereno moreno
 * Estas merendando el tubo
 * Cada quien hace de su culo un papalote
-* De a dos papa
-* Dios te bendiga y te de muchos hijos y un seno grande para amamantarlos
 * Mamando la pirinola con enjundia y pasión
-* Como te la comes que adivinas?.
+* Como te la comes que adivinas?
 * Que tus bolas piensan
 * Guebona de mierda
-* Cangreje esta
-* Hereje cangreje cara de pendeje
 * Enclochable
 * Ese vatillo apretado
 * Estás tirando en el cerro 
 * Callate y comete está
 * Si prostituto barato
 * Ya dejate de mamadas y pegale a esa chingadera
-* Inche jotito de mierda
-* Si entra...
 * Ya se te hizo agua la canoa 
 * Eres toda una loquilla
 * Nacimos para cagarla 
-* A huevo dijo el capao
-* No culearas
 * Concentrado, pa delante y sin miedo
 * No mariconearas
 * Nariz pa´lpolvo
 * Liston pa´l pelo
 * Barnizando el palo
 * Cagando el palo
-* A su pinche hobbit
-* Le entro por el hobbit
 * Hoyo aunque sea de pollo
-* Caulquier mujer es bella por donde mea
-* Te dio el sindrome del gallo
 * Traes mucho talento
 * "Siempre es mejor con una mano amiga"
 * A lo que tu le llamas suerte, yo le llamo talento
 * 'que rollo con el pollo.....almorranas en el hoyo'
 * "no comitees mañana lo que puedes comitear hoy"
-* "entro por el ciego/hobbit" 
-* "se te abrio el hobbit"
 * "somos amigos"
 * Ponte a programar
 * Hechame la mano
