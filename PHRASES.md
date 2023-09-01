@@ -145,6 +145,7 @@
 * Yo siempre digo chinguen a su madre todos menos yo, todos los días
 * Madre le va a faltar para ir a chingarla...
 * Rezando y jalando y con el maso dando
+* Toca agua y ajo, aguantarse y a joderse
 
 
       	/**
